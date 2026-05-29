@@ -1,4 +1,4 @@
-# 👋 Welcome to my GitHub Profile!
+# 👋 Welcome to Avinash GitHub Profile!
 
 **Hi there, I am Avinash Pawar!** | [@pawaravinash0007](https://github.com/pawaravinash0007)
 
